@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @mureed-hussain-droty
+- 👀 I’m interested in Artificial Intelligence(computer Vision) 
+- 🌱 I’m currently learning Deep Learning and Artificial intelligence and also Student of BS Computer Science
+- 💞️ I’m looking to collaborate on computer vision 
+- 📫 drotynew3492@gmail.com or whatshapp number# 03408512421
